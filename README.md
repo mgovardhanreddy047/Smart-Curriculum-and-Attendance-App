@@ -1,0 +1,1 @@
+# Smart-Curriculum-and-Attendance-App
